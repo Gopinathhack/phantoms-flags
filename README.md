@@ -1,2 +1,2 @@
 # phantoms-flags
-hey ctf players
+hey ctf players(remember ur past not future)
